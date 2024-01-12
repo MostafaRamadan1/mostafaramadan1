@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **mostafa.h.ramadan1@gmail.com**
 
-- 📄 Know about my experiences <a href="https://docs.google.com/document/d/1Qkj5rLcHyla3fw2sfuL602grvtgAUG0tVEPTN-WDwgQ/edit?usp=sharing">cv link<a/>
+- 📄 Know about my experiences <a href="https://docs.google.com/document/d/1Qkj5rLcHyla3fw2sfuL602grvtgAUG0tVEPTN-WDwgQ">cv link<a/>
 - ⚡ Fun fact **When I was Junior I hated Coffee so much, but no I can not live without it :)**
 
 <h3 align="left">Connect with me:</h3>
